@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MrSh3lby
+- 👀 I’m interested in Web Development and Design, Python and much more
+- 📧 You can reach me at: Discord:ᴍʀ.ꜱʜᴇʟʙʏ#3826 and on my mail: mr.sh3lby@outlook.com
